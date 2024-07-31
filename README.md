@@ -1,4 +1,4 @@
-👋 Hi there, I'm [@bhuvanika1102](https://github.com/bhuvanika1102)!
+👋 Hi there, I'm Bhuvanika!
 
 ## About Me
 
